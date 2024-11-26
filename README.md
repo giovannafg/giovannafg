@@ -7,7 +7,7 @@
 - 👋 Olá, Sou a Giovanna Felipe
 - 🌱 Estudo Engenharia de Software
 - 💞️ Universidade de Brasília
-- 📫 linkedin: https://www.linkedin.com/in/giovanna-felipe-71b60a338/
+- 📫 linkedin: (https://www.linkedin.com/in/giovanna-felipe-31m2006/)
 
 
 ##
